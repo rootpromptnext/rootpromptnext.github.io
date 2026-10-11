@@ -37,3 +37,6 @@ The content follows the supplied requirements and source copy. No testimonials o
 
 
 
+
+
+The course schedule is available at schedule.html and covers October 2026 through January 2028. Enrollment enquiries open WhatsApp for +91 842 121 8824.
